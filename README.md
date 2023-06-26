@@ -1,1 +1,2 @@
 # merino-wool-tshirt
+<a href="https://www.merinoprotect.com/how-to-wash-merino-wool-socks/">merino wool socks</a> is undeniably a gorgeous material to wear since it provides benefits that other fabrics do not. However, keeping this costly fabric alive for an extended length of time is tough when you are unfamiliar with the care technique. Unfortunately, the general population lacks sufficient information to defend it. 
